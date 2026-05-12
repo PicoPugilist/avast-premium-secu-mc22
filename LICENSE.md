@@ -1,4 +1,4 @@
-# 
+# Enhance Avast Premium Security for PC | Avast Premium Security for Windows with Avast Premium Security for PC | Avast Premium Security for Windows vip Plugin: scheduled-scans &
 
 
 
